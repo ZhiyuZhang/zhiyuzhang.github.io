@@ -1,3 +1,41 @@
+Thursday , September 26 , 15:00
+
+Thursday, October 3, 15:00
+
+Public Holiday
+
+Thursday, October 10, 15:00
+
+Jiangtao Li
+
+Thursday, October 17, 15:00
+
+Chiara Feruglio
+
+Thursday, October 24, 15:00
+
+Thursday, October 31, 15:00
+
+Thursday, November 7, 15:00
+
+Thursday, November 14, 15:00
+
+Thursday, November 21, 15:00
+
+Thursday, November 28, 15:00
+
+Thursday, December 5, 15:00
+
+Thursday, December 12, 15:00
+
+- TBD
+
+Thursday, December 19, 15:00
+
+- TBD
+Thursday, December 26, 15:00
+
+
 <!---
 ## Welcome to GitHub Pages
 
