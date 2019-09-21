@@ -1,30 +1,46 @@
 Thursday , September 26 , 15:00
 
+- TBD
+
 Thursday, October 3, 15:00
 
-Public Holiday
+- Public Holiday
 
 Thursday, October 10, 15:00
 
-Jiangtao Li
+- Jiangtao Li
 
 Thursday, October 17, 15:00
 
-Chiara Feruglio
+- Chiara Feruglio
 
 Thursday, October 24, 15:00
 
+- TBD
+
 Thursday, October 31, 15:00
+
+- TBD
 
 Thursday, November 7, 15:00
 
+- TBD
+
 Thursday, November 14, 15:00
+
+- TBD
 
 Thursday, November 21, 15:00
 
+- TBD
+
 Thursday, November 28, 15:00
 
+- TBD
+
 Thursday, December 5, 15:00
+
+- TBD
 
 Thursday, December 12, 15:00
 
@@ -34,6 +50,8 @@ Thursday, December 19, 15:00
 
 - TBD
 Thursday, December 26, 15:00
+
+- TBD
 
 
 <!---
