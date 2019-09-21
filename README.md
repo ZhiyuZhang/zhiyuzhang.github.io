@@ -1,3 +1,6 @@
+NJU colloquium schedule 2019 2nd semester
+
+
 Thursday , September 26 , 15:00
 
 - TBD
