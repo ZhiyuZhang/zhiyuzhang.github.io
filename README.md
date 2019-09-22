@@ -51,7 +51,7 @@ Thursday, December 12, 15:00
 
 Thursday, December 19, 15:00
 
-- TBD
+- Luis Ho
 
 Thursday, December 26, 15:00
 
