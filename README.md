@@ -19,7 +19,7 @@ Thursday, October 17, 15:00
 
 Thursday, October 24, 15:00
 
-- TBD
+- Ye XU 
 
 Thursday, October 31, 15:00
 
