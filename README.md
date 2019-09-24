@@ -43,7 +43,7 @@ Thursday, November 28, 15:00
 
 Thursday, December 5, 15:00
 
-- TBD
+- Jifeng LIU
 
 Thursday, December 12, 15:00
 
