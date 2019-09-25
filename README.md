@@ -35,7 +35,7 @@ Thursday, November 14, 15:00
 
 Thursday, November 21, 15:00
 
-- TBD
+- Shude MAO
 
 Thursday, November 28, 15:00
 
