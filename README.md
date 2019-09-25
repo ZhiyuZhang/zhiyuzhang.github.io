@@ -27,7 +27,7 @@ Thursday, October 31, 15:00
 
 Thursday, November 7, 15:00
 
-- TBD
+- Qi GUO
 
 Thursday, November 14, 15:00
 
