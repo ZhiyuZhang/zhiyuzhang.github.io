@@ -39,7 +39,7 @@ Thursday, November 21, 15:00
 
 Thursday, November 28, 15:00
 
-- TBD
+- Yipeng JING
 
 Thursday, December 5, 15:00
 
