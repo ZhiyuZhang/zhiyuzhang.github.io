@@ -21,6 +21,11 @@ Thursday, October 24, 15:00
 
 - Ye XU 
 
+Monday, October 28, 15:00 Special Colloquium
+
+- Xian CHEN
+
+
 Thursday, October 31, 15:00
 
 - TBD
