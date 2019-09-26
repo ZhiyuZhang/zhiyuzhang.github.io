@@ -25,10 +25,9 @@ Monday, October 28, 15:00 Special Colloquium
 
 - Xian CHEN
 
-
 Thursday, October 31, 15:00
 
-- TBD
+- Hongyan Zhou
 
 Thursday, November 7, 15:00
 
