@@ -63,7 +63,7 @@ Thursday, December 26, 15:00
 
 Thursday, January 02 2020, 15:00
 
-- TBD
+- Yongquan XUE
 
 Thursday, January 09 2020, 15:00
 
