@@ -61,11 +61,11 @@ Thursday, December 26, 15:00
 
 - Bharata Ratra
 
-Thursday, Jan. 02 2020, 15:00
+Thursday, January 02 2020, 15:00
 
 - TBD
 
-Thursday, Jan. 09 2020, 15:00
+Thursday, January 09 2020, 15:00
 
 - TBD
 
