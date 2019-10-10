@@ -36,7 +36,7 @@ Thursday, November 7, 15:00
 
 Thursday, November 14, 15:00
 
-- TBD
+- Ji YANG
 
 Thursday, November 21, 15:00
 
