@@ -14,7 +14,11 @@ Thursday, October 17, 15:00
 
 - Chiara Feruglio
 
-Thursday, October 21, 15:00 Special Colloquium
+Friday, October 18, 15:00 Special Colloquium
+
+- Qizhou Zhang  
+
+Monday, October 21, 15:00 Special Colloquium
 
 - Ewine van Dishoeck  
 
@@ -22,9 +26,6 @@ Thursday, October 24, 15:00
 
 - Ye XU 
 
-Monday, October 28, 15:00 Special Colloquium
-
-- Xian CHEN
 
 Thursday, October 31, 15:00
 
@@ -68,7 +69,7 @@ Thursday, January 02 2020, 15:00
 
 Thursday, January 09 2020, 15:00
 
-- TBD
+- Xian CHEN
 
 
 
